@@ -2,7 +2,6 @@ $${\color{orange}“ \space This \space is \space gonna \space hurt \space like 
 
 
 
-<p><a href="mollymatt.atabook.org">atabook</a>
 
 ———
 
