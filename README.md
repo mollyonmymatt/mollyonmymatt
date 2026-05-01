@@ -6,7 +6,8 @@
 
 ———
 
-follow my main @orderofthepig 👀
+cud freely unless stated otherwise!
+follow my main 👀
 
 
 
