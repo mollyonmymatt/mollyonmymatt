@@ -9,16 +9,17 @@ $${\color{orange}“ \space This \space is \space gonna \space hurt \space like 
 
 ———
 
-*molly . the last guest*
+***molly*** *. the last guest*
 
-*safe server 1 .*
+*safe server* ***#1 .***
 
-*dni racists, proshippers, darkshippers... just dont be a weirdo . you get the gist .*
+***dni*** *racists, proshippers, darkshippers... just dont be a weirdo . you get the gist .*
 
-*yes i love mollymatt, but i dont mind matt1337 shippers . im chill as long as you are .*
+*yes i love mollymatt, but i dont mind matt1337 shippers .* ***im chill as long as you are .***
 
-*cud freely unless stated otherwise !
-follow my main 👀*
+*cud freely unless stated otherwise !*
+
+***follow my main 👀***
 
 
 
