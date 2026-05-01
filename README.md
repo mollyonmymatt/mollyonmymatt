@@ -9,10 +9,14 @@ $${\color{orange}“ \space This \space is \space gonna \space hurt \space like 
 
 ———
 
-safe server 1 .
+*molly . the last guest*
 
-cud freely unless stated otherwise!
-follow my main 👀
+*safe server 1 .*
+
+*dni racists, proshippers, darkshippers... just dont be a weirdo . you get the gist .*
+
+*cud freely unless stated otherwise !
+follow my main 👀*
 
 
 
