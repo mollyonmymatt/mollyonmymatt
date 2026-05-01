@@ -1,4 +1,5 @@
-*“ This is gonna hurt like hell ..!!! ”*
+$${\color{orange}“ \space This \space is \space gonna \space hurt \space like \space hell \space ..!!! \space ”}$$<br>
+
 
 ———
 
