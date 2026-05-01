@@ -9,6 +9,8 @@ $${\color{orange}“ \space This \space is \space gonna \space hurt \space like 
 
 ———
 
+safe server 1 .
+
 cud freely unless stated otherwise!
 follow my main 👀
 
