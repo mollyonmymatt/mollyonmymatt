@@ -15,7 +15,7 @@ $${\color{orange}“ \space This \space is \space gonna \space hurt \space like 
 
 ***dni*** *racists, proshippers, darkshippers... just dont be a weirdo . you get the gist .*
 
-following back whoever follows me ! ***block me*** if you are part of dni or if you simply don't want me .
+following back whoever follows me or signs ata ! ***block me*** if you are part of dni, if im part of yours, or if you simply don't want me .
 
 *yes i love mollymatt, but i dont mind matt1337 shippers .* ***im chill as long as you are .***
 
