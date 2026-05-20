@@ -17,7 +17,7 @@ $${\color{orange}“ \space This \space is \space gonna \space hurt \space like 
 
 following back whoever follows me or signs ata ! ***block me*** if you are part of dni, if im part of yours, or if you simply don't want me .
 
-*yes i love mollymatt, but i dont mind matt1337 shippers .* ***im chill as long as you are .***
+*i dont mind matt1337 shippers .* ***IF*** you hate me just because i enjoy molly, mollymatt, or daisy1337, please *block me .* ive had many shitty experiences with matt1337 shippers in particular, so i apologize if i seem lame about this . i dont hate you guys ! i am okay as long as you are .
 
 *cud freely unless stated otherwise !*
 
